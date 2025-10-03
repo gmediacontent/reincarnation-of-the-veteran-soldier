@@ -1,1 +1,2 @@
-# reincarnation-of-the-veteran-soldier
+# Reincarnation of the Veteran Soldier
+Le dernier essai d'un vétéran de l'armée à la course d'obstacles devient mortel après une simple chute. Une déesse lui offre l'opportunité d'une nouvelle vie en tant que héros ! Le protagoniste n'en veut pas, il était censé prendre sa retraite et devenir un civil. L'arrogante déesse le laisse tomber pour survivre tout en ayant ses propres plans diaboliques. Comment sa nouvelle vie va-t-elle évoluer après avoir rencontré une autre déesse, un espion et le cadet de sa vie passée ?
